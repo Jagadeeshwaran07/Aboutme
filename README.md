@@ -6,7 +6,11 @@
 
 🎖️As a former HR intern and member of various clubs, I leverage my in-depth understanding of organizational dynamics and team management to foster effective collaborations and team synergy
 
-🎖️Thank you for visiting my profile. I look forward to achieving great heights.
+🎖️Thank you for visiting my profile. I look forward to achieving great heights
+
+https://www.linkedin.com/in/jag-m07/
+
+
 <!---
 Jagadeeshwaran07/Jagadeeshwaran07 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
