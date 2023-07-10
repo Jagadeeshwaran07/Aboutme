@@ -1,4 +1,4 @@
-🎖️Experienced and ambitious final year BTech student at SASTRA University, passionate about problem-solving and continuously upskilling in various areas of computer science and technology
+🎖️Experienced and ambitious final year BTech student at SASTRA University, passionate about problem-solving and continuously upskilling in various areas of computer science & technology
  
 🎖️With a passion for tackling complex challenges, I have gained valuable experience through internships in diverse roles. As a Full Stack Developer, I have developed useful responsive applications, leveraging my proficiency in front-end and back-end technologies
 
