@@ -8,7 +8,7 @@
 
 🎖️Thank you for visiting my profile, I look forward to achieving great heights
 
-www.linkedin.com/in/jag-m07/
+www.linkedin.com/in/jag-m07
 
 
 <!---
